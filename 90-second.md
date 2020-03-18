@@ -2,9 +2,13 @@
 
 What if the most effective solution to the Corona Virus pandemic is the exact opposite approach to everything we are currently doing?
 
+**@TODO** *Re-phrase so it does not sound like we are suggesting there is anything wrong with what is being done.*
+
 --------------------------------------------
 
 Corona Virus has quickly become an existential threat to global society. But the current strategy of social distancing is isolating the very people we need to be working together on the challenge.
+
+**@TODO** *Re-phrase so it does not sound like we are critisizing social distancing.*
 
 --------------------------------------------
 
