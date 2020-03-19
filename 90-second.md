@@ -1,41 +1,68 @@
 [//]: # (This is a text to be narrated. Lines starting with '#' are to skip!)
 
-What if the most effective solution to the Corona Virus pandemic is the exact opposite approach to everything we are currently doing?
+The Corona Virus has quickly become 
+an existential threat to global society.
 
-**@TODO** *Re-phrase so it does not sound like we are suggesting there is anything wrong with what is being done.*
+But the sudden practice of social distancing 
+has left us with an unintended side-effect:
+isolating the very people we need 
+to be working together on the challenge.
 
---------------------------------------------
-
-Corona Virus has quickly become an existential threat to global society. But the current strategy of social distancing is isolating the very people we need to be working together on the challenge.
-
-**@TODO** *Re-phrase so it does not sound like we are critisizing social distancing.*
-
---------------------------------------------
-
-The Corona Virus pandemic is not a single issue problem.
-We have many new complex problems surfacing hourly.
-People who offer pieces of the solution are being isolated.
-Potentially vital information is getting locked down.
-There is no universal channel forsolutions to emerge and converge.
+While we want to slow down 
+the contagion rate of the virus itself,
+we actually want to accelerate
+the spread of ideas and solutions.
 
 --------------------------------------------
 
-Coronavation is a novel approach that is designed to be more viral than the Corona Virus itself.
+CoroNovation is a living system of ideas 
+designed to be life-supporting and
+more viral than the Corona Virus itself.
 
-Collectively, we can work on solutions faster, smarter and more adaptive than the spread of the pandemic.
+CoroNovation facilitates the ideas 
+of everyday members of the community,
+enabling us to access collective intelligence 
+and accelerate social innovation.
 
-Coronavation fosters social innovation by accelerating Collective Intelligence.
+The power of collective intelligence ignites:
+- Connections made spontaneously
+- Resources allocated autonomously
+- Impact measured systematically
 
-Through the power of Collective Intelligence:
-- Connections are made spontaneously
-- Resources are allocated autonomously
-- Impact is measured systematically.
+Collectively, we can work on solutions 
+faster, smarter and more adaptively 
+than the spread of the viral pandemic.
 
 --------------------------------------------
 
-Examples 1 & 2:
+What does this look like in the real world?
 
-Coronavation can be successfully deployed in any context that a local community chooses, from a paper manual in the Rift Valley to distributed network apps in Silicon Valley.
+Recently, a hospital in Chiari, Italy 
+ran out of respirator valves 
+to treat coronavirus infections.
 
-Coronavation leverages the emerging fields of Rapid Sense Making Learning to allow new technologies and innovations to coalesce.
+A local tech company heard the news 
+and was able to immediately start 
+3D printing the vital replacement parts.
 
+Rapid Sensemaking allows for 
+new innovations to emerge... 
+anywhere, anytime, anyhow.
+
+--------------------------------------------
+
+There has never been a more critical time 
+for humanity to embrace social innovation 
+and use the power of Collective Intelligence.
+
+Together, we can build disaster resilience 
+and change the way that people 
+come together to solve complex problems… 
+forever.
+
+JOIN OR CREATE YOUR OWN 
+CORONOVATION GROUP TODAY
+
+info@coronavation.org
+www.coronovation.org
+#CoronaWisdom
